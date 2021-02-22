@@ -7,6 +7,7 @@
   - I'm learning cpp, C#
   - I'm familiar with Python
 - You can reach me via discord, mainly. My discord ID is 665252930106032211.
+- I just like doing shit for fun tbh i need more stuff to make
 <p align="center">
     isaiah#6969 +🌴 
 </p>
